@@ -3,9 +3,9 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=youssefahmed-911&label=Profile%20views&color=0e75b6&style=flat" alt="youssefahmed-911" /> </p>
 
-- 📫 How to reach me **youssef21.ahmed@gmail.com**
+- 📫 How to reach me: **youssef21.ahmed@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1POUg3ECQFGwUtZjHYwWleb1oi-jHElNb/view?usp=sharing](https://drive.google.com/file/d/1POUg3ECQFGwUtZjHYwWleb1oi-jHElNb/view?usp=sharing)
+- 📄 Know about my experiences: [CV](https://drive.google.com/file/d/1POUg3ECQFGwUtZjHYwWleb1oi-jHElNb/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
